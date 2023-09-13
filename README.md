@@ -1,1 +1,1 @@
-# macintosh
+# stude
